@@ -1,4 +1,4 @@
-# cyberartificers.github.io
+# The Secret Order of Cyber Artificers
 
 My name is Dazhbog and I hereby initiate you into The Secret Order of Cyber Artificers.
 
